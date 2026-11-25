@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 SOFTWARE DEVELOPER  | UI/UX DESIGNER<br>Working with easeDaily and Discover himalayas<br>
 
 
